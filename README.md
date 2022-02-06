@@ -1,0 +1,2 @@
+# paid-lock
+WELL BUYED OR NOT FREE 2 DAYS!
